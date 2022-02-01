@@ -1,2 +1,2 @@
 # hello-world
-I'm new to this so I'm not exactly sure what to put here, any advice is welcome
+My name is Purple, and I'm hoping to learn anything I can from this site. I honestly have no idea what I'm doing here, any advice is welcome. 
